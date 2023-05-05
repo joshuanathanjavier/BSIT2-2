@@ -8,4 +8,4 @@
 - 💼 &nbsp; College Student.
 - 🌱 &nbsp; Enthusiast in full-Stack and Artificial Intelligence .
 - ✍️ &nbsp; Watching universe and trying out latest design trends as hobbies/side hustles.
-- 😴 &nbsp; I believe, a perfect nap can be the ultimate solution for any stress.
+- 😴 &nbsp; I believe, a perfect nap can be the ultimate solution for any stress. 
